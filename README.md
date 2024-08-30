@@ -1,1 +1,1 @@
-Just a small project i have no idea where it will end up
+Just a small project I have no idea what it is gonna become
